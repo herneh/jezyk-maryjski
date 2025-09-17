@@ -1,1 +1,1 @@
-# jezyk-maryjski
+# język maryjski
